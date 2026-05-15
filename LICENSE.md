@@ -1,4 +1,4 @@
-# 
+# Enhance Audacity for PC | Audacity for Windows with Audacity for PC | Audacity for Windows vip Effect: compression & noise-reduction, the #1 effect. Includes compression and
 
 
 
